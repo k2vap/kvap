@@ -17,7 +17,7 @@ A litte info js so you know is i can be toxic at times and say mean things if it
 <p align="center">
 Basic dni : proshippers , homophobics, racists , under 13 or over 19 if you under or over js dont be weird unless you let me know its a joke or somthin !! , weird shippers !, weird mha fans , dark ships, sexual humor like i under stand if its a joke but dont overuse it bc its super weird and gross. 
 
-<img width="540" height="571" alt="image" src="https://github.com/user-attachments/assets/21e1e858-ee1b-4616-9ab7-e98e750a01c1" />
+<img width="310" height="300" alt="image" src="https://github.com/user-attachments/assets/21e1e858-ee1b-4616-9ab7-e98e750a01c1" />
 
   <p align="center">
   Ships : im a muilt-shipper so its really doesnt matter unless its a adult x kid those r disguting and never mention them near me. I love any mha their all cute my most favorite is kiribaku KIRIBAKU SHIPPER SINCE 2020 !! i like dkbk and any other ship im not a fan favorite of hawks n dabi but its cute. Im ok with jjk ships like itafushi,itakugi,fushikugi any are fine but dont be delulu about itafushi over a simple intercation it makes no sense??. But im okay with any ships !!!
