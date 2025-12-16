@@ -1,4 +1,4 @@
-<p align="center">
+2<p align="center">
 <img width="800" height="170" alt="tumblr_b6bf12aaa00b3d8f88ce6cdae77c0320_fdab3e81_500" src="https://github.com/user-attachments/assets/0b8473cf-25ad-4800-8544-234611e5ffea" />
   
 <p align="center">
@@ -10,10 +10,13 @@ CREDIT TO MOYA MAMA !!
 Hispanic !
 
 <p align="center">
+Straight .
+
+<p align="center">
 WHISPER ME IF WANT INT !!
 
 <p align="center">
-A litte info js so you know is i can be toxic at times and say mean things if it makes you uncomfortable lmk and ill stop also dont vent to me im not good in those situation and never will be so pls dont tell me about ur personal problems and if i say somthing you dont like a slur or sum lmk and i wont say it again near you. DONT ever involve me into drama js because of a friend and assume ill side with them i do not choose sides or anything like that. Im usually afk bc im mostly watchting yt or just playin games !! 
+A litte info js so you know is i can be toxic at times and say mean things if it makes you uncomfortable lmk and ill stop also dont vent to me im not good in those situation and never will be so pls dont tell me about ur personal problems and if i say somthing you dont like a slur or sum lmk and i wont say it again near you. DONT ever involve me into drama js because of a friend and assume ill side with them i do not choose sides or anything like that. Im usually afk bc im mostly watchting yt or just playin games !! I KIN BAKUGO SM I LOVE HIM ALOTT AAAA!
 
 
 <p align="center">
