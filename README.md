@@ -29,7 +29,7 @@ Basic dni : proshippers , homophobics, racists , under 13 or over 19 if you unde
  Ships : im a muilt-shipper so its really doesnt matter unless its a adult x kid those r disguting and never mention them near me. I love any mha their all cute my most favorite is kiribaku KIRIBAKU SHIPPER SINCE 2020 !! i like dkbk and any other ship im not a fan favorite of hawks n dabi but its cute. Im ok with jjk ships like itafushi,itakugi,fushikugi any are fine but dont be delulu about itafushi over a simple intercation it makes no sense??. i also ship todomomo and bakuocha, izkuocha BECAUSE LIKE yuh i like those staright ships im not a hater YOULL NEVER CATCH ME HATING ON STARIGHT SHIPS. lets be real ichihime is the best bleach ship lets be real !
 
   <p align="center">
-  Socials : insta: kv2pp  Discord: .kvap  lmk when you add me on those so ik!
+  Socials : insta: kv2pp  Discord: .kkur0 lmk when you add me on those so ik!
 <p align="center">
 <img width="540" height="571" alt="image" src="https://github.com/user-attachments/assets/e1451742-6d3b-4d7e-b98f-3981752eaefc" />
 
