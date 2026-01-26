@@ -31,5 +31,5 @@ Basic dni : proshippers , homophobics, racists , under 13 or over 19 if you unde
   <p align="center">
   Socials : insta: kv2pp  Discord: .kkur0 lmk when you add me on those so ik!
 <p align="center">
-<img width="540" height="571" alt="image" src="https://github.com/user-attachments/assets/e1451742-6d3b-4d7e-b98f-3981752eaefc" />
+<img width="540" height="571" alt="image" src="https://github.com/user-attachments/assets/0aa02df6-f31d-423b-ad99-4046b65ae777" />
 
